@@ -2,7 +2,7 @@
 
 My title is Manager, Health Promotion and Community Engagement. I am part of our management team along with Racquel Simpson, Program Manager & Strategist, Maame Boateng, Program Manager, and Paul Bailey, Executive Director. My work involves driving our strategic direction via health promotion efforts. I spend time engaging with a variety of stakeholders deciding how best to collaborate and expand our work. I also spend a lot of time developing and maintaining key partnerships. Lastly, I do quite a bit of administrative and project management tasks.
 
-# My Hours.\
+# My Hours
 
 My regular working hours are 9 am - 5 pm. I work virtually every day, except the day that we are in the office together. However, I drop into the office on other days once in a while. I also work outside of these hours (some evenings and some Saturdays) to accommodate the needs of some of our stakeholders, and I am happy to do so! Lastly, you may see me online, answering emails, or working on a document at random hours. Sometimes, I like to play catch up outside of my regular working hours and I don't expect you to do the same. :) I take my breaks whenever I feel necessary and whenever makes the most sense for the flow of my day. Whenever I am off, you will know because it will be outlined in my calendar ahead of time. 
 
